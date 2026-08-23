@@ -47,7 +47,7 @@ https://drive.usercontent.google.com/download?id=1YyW4-Zquht_KSoQSNtZICrHJY9Kjve
 P6 
 https://drive.usercontent.google.com/download?id=1hTwLf-PR5aBe2oOK3sFXiqUgp9PrDAuZ&export=download&authuser=0
 
-**AVATAR FRONTIERS OF PANDORA**:
+$\color{#2EC4B6}\textbf{AVATAR FRONTIERS OF PANDORA}$:
 
 Part 1:
 https://drive.usercontent.google.com/download?id=1qpTREqz7kaHDEZT4Ig1cRlKoDXGgxu_J&export=download&authuser=0
