@@ -32,3 +32,35 @@ P5
 https://drive.usercontent.google.com/download?id=1YyW4-Zquht_KSoQSNtZICrHJY9Kjve7N&export=download&authuser=0
 P6 
 https://drive.usercontent.google.com/download?id=1hTwLf-PR5aBe2oOK3sFXiqUgp9PrDAuZ&export=download&authuser=0
+
+AVATAR FRONTIERS OF PANDORA:
+
+Part 1:
+https://drive.usercontent.google.com/download?id=1qpTREqz7kaHDEZT4Ig1cRlKoDXGgxu_J&export=download&authuser=0
+
+Part 2:
+https://drive.usercontent.google.com/download?id=1b7gP9ErX5KOUaa1DH4aqNxcj7WJx5f1d&export=download&authuser=0
+
+Part 3:
+https://drive.usercontent.google.com/download?id=1nS-Jku4KAc6q-23KaPkC7xrw5icYtnqO&export=download&authuser=0
+
+Part 4:
+https://drive.usercontent.google.com/download?id=1RD_nKSD-SbexiQkj98Xf4Qob4olOrvA7&export=download&authuser=0
+
+Part 5:
+https://drive.usercontent.google.com/download?id=1ilrNf8amEOqz1vgdjq4aElinuCUxErpY&export=download&authuser=0
+
+Part 6:
+https://drive.usercontent.google.com/download?id=18kQFc61XfWlTOc4OurzVt_zEHrXqOyKi&export=download&authuser=0
+
+Part 7:
+https://drive.usercontent.google.com/download?id=1hnWak88qpPwr8m_u4lwTxUPWsCIWq-NX&export=download&authuser=0
+
+Part 8:
+https://drive.usercontent.google.com/download?id=1DgzNqiQx9oqo-y86XSrRpKytNtkrgTv4&export=download&authuser=0
+
+Part 9:
+https://drive.usercontent.google.com/download?id=1QfFyyx0OVoPw3ZUEpY8YT_jLuf3wdkfH&export=download&authuser=0
+
+Patch VH:
+https://www.dropbox.com/scl/fi/pjb8bbu032pj1d5jleb1a/tamhongame.com-_AFOP-Patch-Viet-Hoa.rar?rlkey=aom461cbs1mvf8qsjt0ucewam&st=mupn29ym&e=1&dl=0
