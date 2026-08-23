@@ -78,3 +78,10 @@ https://drive.usercontent.google.com/download?id=1QfFyyx0OVoPw3ZUEpY8YT_jLuf3wdk
 
 Patch VH:
 https://www.dropbox.com/scl/fi/pjb8bbu032pj1d5jleb1a/tamhongame.com-_AFOP-Patch-Viet-Hoa.rar?rlkey=aom461cbs1mvf8qsjt0ucewam&st=mupn29ym&e=1&dl=0
+
+Grounded
+Part 1
+https://drive.usercontent.google.com/download?id=1-82UCBrA7XudFSBH3YUk8lu7BpHS_X4b&export=download&authuser=1
+
+Part 2
+https://drive.usercontent.google.com/download?id=1uefjyQnUAiA8aY0tV1sdnr8m6BudgX8U&export=download&authuser=1
