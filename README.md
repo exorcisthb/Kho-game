@@ -27,7 +27,7 @@ https://drive.usercontent.google.com/download?id=14vDPvbCxsYPiB3s8rzhTrw8rKCzRCv
 Part 9
 https://drive.usercontent.google.com/download?id=1sJHkGgKAkPmBdZYjdXopCJSbIATMuCqv&export=download&authuser=1
 
-**Split Fiction**:
+$\color{#2EC4B6}\textbf{Split Fiction}$:
 
 P1
 https://drive.usercontent.google.com/download?id=1qMYrLnIcV4NLKq3u6N7Q23hB2_V0lo-P&export=download&authuser=0
@@ -79,7 +79,7 @@ https://drive.usercontent.google.com/download?id=1QfFyyx0OVoPw3ZUEpY8YT_jLuf3wdk
 Patch VH:
 https://www.dropbox.com/scl/fi/pjb8bbu032pj1d5jleb1a/tamhongame.com-_AFOP-Patch-Viet-Hoa.rar?rlkey=aom461cbs1mvf8qsjt0ucewam&st=mupn29ym&e=1&dl=0
 
-Grounded
+$\color{#2EC4B6}\textbf{Grounded}$:
 
 Part 1:
 https://drive.usercontent.google.com/download?id=1-82UCBrA7XudFSBH3YUk8lu7BpHS_X4b&export=download&authuser=1
